@@ -11,3 +11,5 @@ i do take my comfort characters/ships very seriously, i don't like ppl who pick 
 phighting and regretevator fans <b>thin ice/iwc</b>, i have bad experiences But i genuinely like some of yall skins tho.
 
 Most-timed i'd been shown as medkit or boombox skins(even the ph! skins or tints) than my other skins, i rarely or barely changed my skins ofc.
+
+[wip]
