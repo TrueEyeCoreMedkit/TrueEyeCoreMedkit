@@ -9,3 +9,5 @@ I'm very comfortable with c+h even if you ask, if i moved away. That means i was
 i do take my comfort characters/ships very seriously, i don't like ppl who pick fun of it. I sometimes do that to my fiction/Otherkins's as yet.
 
 phighting and regretevator fans <b>thin ice/iwc</b>, i have bad experiences But i genuinely like some of yall skins tho.
+
+Most-timed i'd been shown as medkit or boombox skins(even the ph! skins or tints) than my other skins, i rarely or barely changed my skins ofc.
