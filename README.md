@@ -6,7 +6,8 @@ Btw, my Medkit skin is based on @silly_jpg's Artstyle, just colorpicked btw. So 
 
 I'm very comfortable with c+h even if you ask, if i moved away. That means i wasn't really looking, I'd apologized if i d that at times.
 
-i do take my comfort characters/ships very seriously, i don't like ppl who pick fun of it <b<unless friends.</b> I sometimes do that to my fiction/Otherkins's as yet. <br>if you do make fun of them, i'll obnoxiously hide you for like 15 mins for fair warning
+<i do take my comfort characters/ships very seriously, i don't like ppl who pick fun of it <b>unless friends</b>. I sometimes do that to my fiction/Otherkins's as yet. 
+if you do make fun of them, i'll obnoxiously hide you for like 15 mins for fair warning
 
 phighting and regretevator fans <b>thin ice/iwc</b>, i have bad experiences But i genuinely like some of yall skins tho.
 
