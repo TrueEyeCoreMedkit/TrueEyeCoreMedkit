@@ -14,4 +14,5 @@ phighting and regretevator fans <b>thin ice/iwc</b>, i have bad experiences But 
 
 Most-timed i'd been shown as medkit or boombox skins(even the ph! skins or tints) than my other skins, i rarely or barely changed my skins ofc.
 
-[wip]
+areas you can find me:
+regretevator(on the trees), docks(on the trees or at the pride area), bfb/osc area(rarely), at the beach or top-right beach(if i'm pearl hunting)
