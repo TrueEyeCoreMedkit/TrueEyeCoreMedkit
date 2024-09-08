@@ -1,8 +1,6 @@
 Hey there, pt user!
 
 Btw, my Medkit skin is based on @silly_jpg's Artstyle, just colorpicked btw. So it's very obv same as for my boombox ^_^
-<img src="https://i.postimg.cc/mk4RJ5yB/pony-town-medkit-rmk-c-h-kin-stand-name-fixed-padded-4x-1.png"><img src="https://i.postimg.cc/j2VFKQJ6/pony-town-dislusigsh-kin-c-h-stand-name-fixed-padded-4x.png">
-
 (i sometimes forget my strawpage, i'm sorry if it's late/vsrs)
 
 I'm very comfortable with c+h even if you ask, if i moved away. That means i wasn't really looking, I'd apologized if i d that at times.
