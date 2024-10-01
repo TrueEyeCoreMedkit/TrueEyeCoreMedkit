@@ -1,5 +1,5 @@
 <p align="center">
-  "WHERE TRUE EYES DON'T <B>LOOK</B> BACK" <img src="https://64.media.tumblr.com/f848a78a6d1d83a5eb272db563173a6a/b572a179094d603f-8d/s75x75_c1/f5301e3d2c3432a286f52b781585a59a731652c7.gifv"><br>
+  "WHERE TRUE EYES DON'T <B>LOOK</B> BACK" <br><img src="https://64.media.tumblr.com/ed405ae031fd64647f617e3bb5171ffb/c3cfc3267c678853-2a/s400x600/aa77b604eb0a0011314d5140c1e2ef3fb5ce5482.pnj"><br> <img src="https://64.media.tumblr.com/f848a78a6d1d83a5eb272db563173a6a/b572a179094d603f-8d/s75x75_c1/f5301e3d2c3432a286f52b781585a59a731652c7.gifv"><br>
   <img src="https://media1.tenor.com/m/lKhZQ8IETIMAAAAC/medkit-phighting.gif"<br>
   <Img src="https://media.discordapp.net/attachments/1112204674083344486/1178474435452338258/ezgif.com-resize_5.gif?ex=657646d8&is=6563d1d8&hm=3b9095abd19ce76e6fdc24f32ff54ae7657d53602fa39edf47a96b14f21e4323&=&width=402&height=416"><br<
 <img align="center" <img src="https://media.discordapp.net/attachments/1112204674083344486/1178474435452338258/ezgif.com-resize_5.gif?ex=657646d8&is=6563d1d8&hm=3b9095abd19ce76e6fdc24f32ff54ae7657d53602fa39edf47a96b14f21e4323&=&width=402&height=416">
