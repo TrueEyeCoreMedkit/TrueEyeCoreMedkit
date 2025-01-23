@@ -1,6 +1,7 @@
 
 <p align="center">
-<img align="center" <img src="https://ic.pics.livejournal.com/rincakes/39464906/5162/5162_600.gif"><br><img src="https://pbs.twimg.com/media/GGqT2HpasAAZ9hZ.jpg:large">
+  !! RENTRY IS MOSTLY OUTDATED SO I DECIDED TO CODE MY WAY TO WORK ON MY INFO !!
+<br><img align="center" <img src="https://ic.pics.livejournal.com/rincakes/39464906/5162/5162_600.gif"><br><img src="https://pbs.twimg.com/media/GGqT2HpasAAZ9hZ.jpg:large">
 <br><img src=="https://64.media.tumblr.com/3834a83a5f9b23793e81a6d4c7f66c1e/5e2f3841f3e1bfaa-d2/s400x600/bcb34e7c78642a87da5ae9c1810a711862c24412.pnj"><br><img src="https://64.media.tumblr.com/3834a83a5f9b23793e81a6d4c7f66c1e/5e2f3841f3e1bfaa-d2/s400x600/bcb34e7c78642a87da5ae9c1810a711862c24412.pnj"><br>name's Medkit/Boombox or Kiz : She/any<img src="https://64.media.tumblr.com/8639f5bc2957e28f6abedfe34f330e18/89665c58cb65b024-9e/s75x75_c1/769d52c4b2ec20d21cc2c7e8324c7ac948b39b18.gifv">
 <br> Minor, 14 y/o <img src="https://64.media.tumblr.com/05d5c2d5eb6764f9d0f80a073ff20a91/eb7088c9bc9a98b3-58/s75x75_c1/b976ef5411335c0f514e95ad562e0b124290ca6e.gifv"> I'm Neurodivergent + Insominac .<br>Fiction/linktypes of 22, mainly afk/spec/alone or w/ claire and friends<br>
 Cartoonist + Chronically Online ididot/ref, selfshipper(dandy<3, i'll prob share dandy or smth js ask.)<br>i don't mind sourcemates and/or canonmates<br><img src="https://64.media.tumblr.com/38a54d48042c1c2e8ba8961ab8ba552c/70456ea8a31cb6f3-08/s400x600/b413b8f486d1bfa031198ae8356b0c2b4e65b12d.pnj"><br>
