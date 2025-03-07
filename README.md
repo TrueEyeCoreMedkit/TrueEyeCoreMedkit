@@ -3,4 +3,5 @@ HOW DO YALL HOOK YOUR SPOTIFY PLAY NOW THING ON GITHUB READ ME???
 
 <p align="center">
   
-WELCOME WELCOME !!
+WELCOME WELCOME !!<br><br>
+yes i'm the person who made that one comment being angry with the Anon over hating on people </3 -Talemon
