@@ -4,4 +4,4 @@ HOW DO YALL HOOK YOUR SPOTIFY PLAY NOW THING ON GITHUB READ ME???
 <p align="center">
   
 WELCOME WELCOME !!<br><br> 
-yes i'm the person who made that one comment being angry with the Anon over hating on people </3 -Talemon<br> day 2 w/o Strawpage </3 -GRIEFER
+yes i'm the person who made that one comment being angry with the Anon over hating on people </3 -Talemon<br>
