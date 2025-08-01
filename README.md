@@ -15,8 +15,8 @@
 <h2>DNI IF..</h2><br>
 <li>Basic dni<b>(homophobic, racist, etc)</b></li>
 <li>Anti Fictionkin/therian/etc</li>
-<li>Sysmeds/syscourse(watch me get blasted w/ hate for this, i love any system origins,, <3)</li>
-<li>Under 14</li>
+<li>Sysmeds/syscourse(watch me get blasted w/ hate for this, one word would get me cancelled = i love any system origins <3)</li>
+<li>Under 14, well despite being 15 and all,, this is the best age range suitable.</li>
 <li>proship/comship.</li>
 <li>one of ex-friends UNLESS i int.</li>
 <br>
