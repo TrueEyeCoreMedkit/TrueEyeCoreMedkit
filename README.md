@@ -20,7 +20,7 @@
 <li>Anti Fictionkin/therian/etc</li>
 <li>Sysmeds/syscourse(watch me get blasted w/ hate for this, one word would get me cancelled = i love any system origins <3)</li>
 <li>Under 14, well despite being 15 and all,, this is the best age range suitable.</li>
-<li>proship/comship.</li>
+<li>proship/Darkship</li>
 <li>one of ex-friends UNLESS i int.</li>
   <li>Spawnism or whatevr you are..</li>
 <br>
