@@ -11,9 +11,10 @@
 <br><li>idm people c+h on me,, it gives me comfort despite not knowing others! However, i wont accept friend rq unless i know you well but there's a chance i won't do friend rq well due to past tense w/ ex-friends that i've suffered with.</li>
 
   <img src="https://64.media.tumblr.com/85566cd565f766d4154e793656d08cfd/c4bd71251a0a1a8a-20/s2048x3072/2c0bf5e3c6062b4ad62cb308f2f76f18bf7ec41e.pnj"><br><img src="https://static.wikitide.net/phightingwiki/3/35/Medkit_old_soda.jpg?20240320100015">
-<li>I may be overthinking and fear of being questioned, Althrough it's not your fault it's personal reasons.</li>
+  <li>I'm a fictionkin but whoppin 28 kintypes with different terms woraaah!! i would love to talk abt my kintypes since i'm more lean to talk abt kintypes than system talk unless stated.</li><br>
+<li>I may be overthinking and fear of being questioned, Althrough it's personal reasons. It's not you're fault!</li>
 <br><li>IF YOU SEE SOMEONE COPIED MY SKINS W/O GITHUB SAID "TRUEEYECOREMEDKIT" OR "TRUEPWNEDCORESHEDLETSKY" that is NOT us. Please don't fall for it. i'm okay with inspo if you asking but don't do this w/o my permission!</li><br>
-<li>I may say some mpreg or draw as a joke, but i will kindly stop if you're uncomfy. althrough i respect it as bounderies due to the fact I may forget it. This isn't your fault through. Keep in mind!</li><br>i'm still working on my strawpage sob,,,
+<li>I may say some mpreg or draw as a joke, but i will kindly stop if you're uncomfy. althrough i respect it as bounderies due to the fact I may forget it. Again, This isn't your fault.</li><br><li>you can ask me to vent, however i'm not really good at helping but i'll try to help as my best.</li><br><li>i mispell lot of times, BUT do NOT correct me cuz it gets annoying!</li>
 <img src="https://64.media.tumblr.com/283be01d657506d9422b38f79945bda2/4160be3cc2b84620-4e/s100x200/7eb59455b9ef0119f92f6cde915d5a80b621f210.gifv">
 <h2>DNI IF..</h2><br>
 <li>Basic dni<b>(homophobic, racist, etc)</b></li>
@@ -26,11 +27,11 @@
 <br>
 <h2>Thin ice</h2><br>
 
-<li>phighting fans.(while i'm a fan myself, This is the part where i became uncomfortable with the fans unless i know you well... This is due to trauma experiences.)</li>
-<li>forsaken and uhh dandy world(kinda same w/ phighting fans but quite iwc.)</li>
-<li>Subspace fictkins/mains/etc.(friends are ok! i somewhat get impulsive thoughts from subspaces as a medkit fictionkin but iwec </li><br>
+<li>phighting fans.(while i'm a fan myself, This is the part where i became uncomfortable with the fans unless i know you well... This is due to trauma and stress experiences. So i'm just gonna say either iwec or just dniuid or dniuf )</li>
+<li>forsaken and uhh dandy world(iwc since i'm aware how you guys are weird but you can int with an... exception iwc)</li>
+<li>Subspace fictkins/mains/etc.(friends are ok! i somewhat get impulsive thoughts from subspaces as a medkit fictionkin, but Iwec) </li><br>
 <li>"I know this character better than you!!!11" i get jeez.</li>
 <li>Doubleferoda, Look idm you guys shipping this. I will kindly ask you not to talk the ship around me.</li>
-<li>andd finally, the upper roblox area. major bad experience so hvyiwecuf.</li>
+<li>andd finally, the upper roblox area. major bad experience so hvyiwecuf or dniu i know you or friend.</li>
   <h3>STAMPS CUZ I LOV THEM!!(these are from tumblr but feel free to rob this lol)</h3>
 <img src="https://64.media.tumblr.com/ae6e9c6e0f71d1e7fad7c3f307c182bd/c4bd71251a0a1a8a-04/s400x600/923b942c1bc0051a7ed602a010147cad4eeb2d31.pnj"><br><img src="https://64.media.tumblr.com/811c37ae5026b4f96352559549824659/b09dd322493498bb-64/s100x200/8cf766ebb24b66b12677c3b2737f6cf68b0fa513.pnj"><img src="https://64.media.tumblr.com/3c725efaa0aed12865488ccba13b5846/9c1f0ab5fcac6e74-b7/s100x200/a6dde0f3f698b782234d85b1799f94b1da5f3b26.pnj"><img src="https://64.media.tumblr.com/d3b7958e844c6b5ce8ec5082f66cedd4/70dbdd6093981950-30/s250x400/5792218ac60d142430198b9fa454d0cf3d7424c0.pnj"><img src="https://64.media.tumblr.com/172292f9e470e752edc8d2db55c60a0b/17f7cb44a44c0433-38/s250x400/b392a7a720606ce762dfd340b1df0fe43a8a219b.gifv"><img src="https://64.media.tumblr.com/44c01d8be819f3a9881aa4ba3a71f6c0/17f7cb44a44c0433-57/s250x400/9638e4fcc21d12980a7ae7a7df15d87b4b88ceae.gifv"><img src="https://64.media.tumblr.com/bb79423511d428e3d5fdecedc629d141/759d0702f54efa9f-4b/s250x400/0659a1329aa0244b596b68b51371e85ecb1cbb29.gifv"><img src="https://64.media.tumblr.com/6e5652aa95e95fc4f4e3ca2551955101/6f1e5bdf78d09eae-fd/s75x75_c1/51ed7d1b77dd71749a31f3c6691d1e24f817555d.gifv"><img src="https://64.media.tumblr.com/70b68b0452865f2f1da417c2fea08bb8/6f1e5bdf78d09eae-87/s250x400/4989a6cd4042c511af03a76a300590f03c1bb923.gifv"><img src="https://64.media.tumblr.com/8b91ecd0c8330a98419965a3fd16aba7/6f1e5bdf78d09eae-81/s75x75_c1/332b06a6fcc4fac4dc8483f81a9e32fa5387b97c.gifv"><img src="https://64.media.tumblr.com/3f73ab7cd2653f4d231843e454186727/1f5793f20e14b24e-63/s250x400/8c16089c07f19e7fbeaff6d038bd6857ff3002de.gifv">
