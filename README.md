@@ -10,7 +10,8 @@
 <br><li>I may be offtab or afk, despite this i may reply in whispers fast in most of the time<b>(not all-timed tho)</b> but in some cases. I may not be active on some of my socials due to my upcoming role as a sophomore,, so i'm sorry i may catch replies late. </li>
 <br><li>idm people c+h on me,, it gives me comfort despite not knowing others! However, i wont accept friend rq unless i know you well but there's a chance i won't do friend rq well due to past tense w/ ex-friends that i've suffered with.</li>
 
-  <img src="https://64.media.tumblr.com/85566cd565f766d4154e793656d08cfd/c4bd71251a0a1a8a-20/s2048x3072/2c0bf5e3c6062b4ad62cb308f2f76f18bf7ec41e.pnj"><br><img src="https://static.wikitide.net/phightingwiki/3/35/Medkit_old_soda.jpg?20240320100015">
+  <img src="https://64.media.tumblr.com/85566cd565f766d4154e793656d08cfd/c4bd71251a0a1a8a-20/s2048x3072/2c0bf5e3c6062b4ad62cb308f2f76f18bf7ec41e.pnj"><br><img src="https://static.wikitide.net/phightingwiki/3/35/Medkit_old_soda.jpg?20240320100015"><br>
+  <img src="https://64.media.tumblr.com/297cc377206a783b35a418a63c380216/eb5e40a4245fc7b4-66/s400x600/337a18d78c1c8d48776d9e13c517cc7e799a98de.gifv">
   <li>I'm a fictionkin but whoppin 28 kintypes with different terms woraaah!! i would love to talk abt my kintypes since i'm more lean to talk abt kintypes than system talk unless stated.</li><br>
 <li>I may be overthinking and fear of being questioned, Althrough it's personal reasons. It's not you're fault!</li>
 <br><li>IF YOU SEE SOMEONE COPIED MY SKINS W/O GITHUB SAID "TRUEEYECOREMEDKIT" OR "TRUEPWNEDCORESHEDLETSKY" that is NOT us. Please don't fall for it. i'm okay with inspo if you asking but don't do this w/o my permission!</li><br>
