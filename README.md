@@ -19,11 +19,11 @@
 <img src="https://64.media.tumblr.com/283be01d657506d9422b38f79945bda2/4160be3cc2b84620-4e/s100x200/7eb59455b9ef0119f92f6cde915d5a80b621f210.gifv">
 <h2>DNI IF..</h2><br>
 <li>Basic dni<b>(homophobic, racist, etc)</b></li>
-<li>Anti Fictionkin/therian/etc</li>
+<li>Anti Fictionkin/therian/etc... errrm </li>
 <li>Sysmeds/syscourse(watch me get blasted w/ hate for this, one word would get me cancelled = i love any system origins <3)</li>
 <li>Under 14, well despite being 15 and all,, this is the best age range suitable.</li>
-<li>proship/Darkship</li>
-<li>one of ex-friends UNLESS i int.</li>
+<li>proship/Darkship, i'm not that guy who harasses/send <s>death</s> threats others, but what you guys coping isn't healthy through! but if you're seeking for help or recovery. Click here <a href="https://rentry.co/-hotlines">links.</a></li>
+<li>one of ex-friends UNLESS i int. I will int if it depends on my mood but i may not trust you.(this only for ex-friends who are forgiving.)</li>
   <li>Spawnism or whatevr you are..</li>
 <br>
 <h2>Thin ice</h2><br>
