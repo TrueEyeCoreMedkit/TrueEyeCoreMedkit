@@ -22,9 +22,9 @@
 <li>Anti Fictionkin/therian/etc... errrm </li>
 <li>Sysmeds/syscourse(watch me get blasted w/ hate for this, one word would get me cancelled = i love any system origins <3)</li>
 <li>Under 14, well despite being 15 and all,, this is the best age range suitable.</li>
-<li>proship/Darkship, i'm not that guy who harasses/send <s>death</s> threats others, but what you guys coping isn't healthy through! but if you're seeking for help or recovery. Click here <a href="https://rentry.co/-hotlines">links.</a></li>
+<li>proship/Darkship, i'm not that guy who harasses/send <s>death</s> threats others, but what you guys coping isn't healthy through! but if you're seeking for help or recovery. Click here <a href="https://rentry.co/-hotlines">links.</a>/nf/gen</li>
 <li>one of ex-friends UNLESS i int. I will int if it depends on my mood but i may not trust you.(this only for ex-friends who are forgiving.)</li>
-  <li>Spawnism or whatevr you are..</li>
+  <li>Spawnism or whatevr you. Same above w/ the link,, but again. I can't change anyone or whoever but i tried my best to help-out the concern/gen</li>
 <br>
 <h2>Thin ice</h2><br>
 
