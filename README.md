@@ -23,6 +23,7 @@ This intro is for ponytown mostly made for it, if you found this w/o ponytown th
 <li>My prns cc is wip rn so yeah lol, will not make strawpage anymore.</li>
 <img src="https://64.media.tumblr.com/f021799c2abb2ee2207a3b9c07b1d1c6/b2444331b8675542-f8/s400x600/c83651af5fba534fb2a6736bc941dbaa20c3010e.pnj">
 <h2>DO NOT INT IF..</h2><br>
+<li>Under 14</li>
 <li>Basic dni(homophobic, racist, etc)</li>
 <li>oroship/darkship</li>
 <li>sysmeds/syscourse(i'm looking at the anon on my ata who stalked me for while.... me when i get you!11 <33 <li></li>
