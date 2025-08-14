@@ -11,8 +11,19 @@ This intro is for ponytown mostly made for it, if you found this w/o ponytown th
 <img src="https://64.media.tumblr.com/36c100d65f5b532bdda346b7b3ade7af/413e0935703ac511-51/s400x600/f8e1c5b78d235ca9a29dcf30ed400bfb1940c71e.pnj"><img src="https://64.media.tumblr.com/b4b96597e74ad6b6c7c16df76aed7350/65cbae88d830cf89-58/s75x75_c1/9ccca80b0dc065bc4232e0e324de4a1161c0892e.gifv">
 <li>I'm 15 y/o, so expect me to be the childish ever one</li>
 <li>African American and i go by She/any(She/her pref). I"m also Transmasc femme + Sapphic</li>
-<li>Fictionkin, copinglink of 29 whoppin kintypes and Plural, Median plural of 8 facets.</li>
+<li>Fictionkin, copinglink of 29 whoppin kintypes and questioning ossd-1a Plural + Median plural of 8 facets. i use i/me</li>
 <li>I'm an Cartoonist/Artist, also Dreamcore/Weirdcore Lover since bright colors.......</li>
 <img src="https://64.media.tumblr.com/d632a78a693f237512f19f6c6d0e818a/c4bd71251a0a1a8a-f0/s2048x3072/aecd5aa1d2b6397bd602910c2681fcc17f276d29.pnj">
+<h2>BEFORE YOU INT</h2><br>
 
+<li>I may have mood swings as my mood can 'depend' on swings.</li>
+<li>I may say mpreg jokes, SOMETIMES. but if that makes you uncomfy tell me then i'll noted due to my forgetness. It's not your fault!</li>
+<li>I'm off-tab and afk usual unless on tab </li>
+<li>If you see someone copied my skins w/o github, PLEASE TELL ME cuz i;m getting tired.</li>
+<li>My prns cc is wip rn so yeah lol, will not make strawpage anymore.</li>
+<img src="https://64.media.tumblr.com/f021799c2abb2ee2207a3b9c07b1d1c6/b2444331b8675542-f8/s400x600/c83651af5fba534fb2a6736bc941dbaa20c3010e.pnj">
+<h2>DO NOT INT IF..</h2><br>
+<li>Basic dni(homophobic, racist, etc)</li>
+<li>oroship/darkship</li>
+<li>sysmeds/syscourse(i'm looking at the anon on my ata who stalked me for while.... me when i get you!11 <33 <li></li>
 <h3>WIP SINCE THE OLD ONE THREW ME OFF... AJDHDHF</h3>
