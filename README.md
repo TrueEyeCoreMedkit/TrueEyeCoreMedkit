@@ -25,6 +25,6 @@ This intro is for ponytown mostly made for it, if you found this w/o ponytown th
 <h2>DO NOT INT IF..</h2><br>
 <li>Under 14</li>
 <li>Basic dni(homophobic, racist, etc)</li>
-<li>oroship/darkship</li>
+<li>proship/darkship</li>
 <li>sysmeds/syscourse(i'm looking at the anon on my ata who stalked me for while.... me when i get you!11 <33 <li></li>
 <h3>WIP SINCE THE OLD ONE THREW ME OFF... AJDHDHF</h3>
