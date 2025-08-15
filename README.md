@@ -26,5 +26,5 @@ This intro is for ponytown mostly made for it, if you found this w/o ponytown th
 <li>Under 14</li>
 <li>Basic dni(homophobic, racist, etc)</li>
 <li>proship/darkship</li>
-<li>sysmeds/syscourse(i'm looking at the anon on my ata who stalked me for while.... me when i get you!11 <33 <li></li>
+<li>sysmeds/syscourse(i'm looking at the anon on my ata who stalked me for while.... me when i get you!11 <33 <li>Pt sys/collective unless i do or dniuf(nothing against y'all. Trust issus + bad experinces/lh)</li>
 <h3>WIP SINCE THE OLD ONE THREW ME OFF... AJDHDHF</h3>
