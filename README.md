@@ -39,6 +39,7 @@
     <p align="left">
     <b>Do not int(i hate this.)</b>
 <li>Basic dni(homophobia, racist and etc)</li>
+      <li>Under 14,,</li>
 <li>Sysmeds(this is only for my friend's comfort, pt friends on thin ice as long you respect it.)</li>
 <li>anti ficitonkin/alterhuman/etc.</li>
 <li>WEIRD forsaken/phighting/BT fans</li>
