@@ -22,7 +22,7 @@
 <img src="https://64.media.tumblr.com/d632a78a693f237512f19f6c6d0e818a/c4bd71251a0a1a8a-f0/s2048x3072/aecd5aa1d2b6397bd602910c2681fcc17f276d29.pnj">
 <p align="center">
   <b>BEFORE YOUU INt:</b>
-  <li>I may be offtab or afk at times, i'm busy w/ school w2int is perfer.</li>
+  <li>I may be offtab or afk at times, i'm busy w/ school w2int is perfer. However, i may specatate stuff on-tab. Sorry lol</li>
   <li>i luv my oomfs,, and i may feel alone due to past "friends".</li>
   <li>I have social awkwardness, despite me being silly. At times i may fear being questioned.</li>
   <li>despite me inting with others. I may take friend rq IF i known you well, i don't trust anyone unless i know you.</li>
