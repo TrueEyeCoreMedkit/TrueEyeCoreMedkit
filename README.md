@@ -23,11 +23,11 @@
 <p align="center">
   <b>BEFORE YOUU INt:</b>
   <li>I may be offtab or afk at times, i'm busy w/ school w2int is perfer. However, i may specatate stuff on-tab. Sorry lol</li>
-  <li>i luv my oomfs,, and i may feel alone due to past "friends".</li>
+  <li>i luv my oomfs,, and i may feel alone due to past "friends". This is because i suffered being distusted & shyness.</li>
   <li>I have social awkwardness, despite me being silly. At times i may fear being questioned.</li>
   <li>despite me inting with others. I may take friend rq IF i known you well, i don't trust anyone unless i know you.</li>
   <li>i have mood swings at times, it's personal one and it's not your fault.</li>
-  <li>i'll make mpreg jokes(NOT the joke skin)... if we're close, but i WILL stop if uncomfy/</li>
+  <li>i'll make mpreg jokes(NOT the joke skin)... if we're very close, but i WILL stop if uncomfy. However i won't do this toon much, more of an lesser.</li>
   <li>If i don't like you or any related to this, i will hide/block.</li>
   <img src="https://64.media.tumblr.com/c36b0812758e0e9422ea216cf6fa7998/b87cac47a33bbd15-5d/s400x600/556186266c3b44bfa2f186756ef544d0f7cea085.gifv">
 <p align="right">
@@ -39,10 +39,10 @@
     <p align="left">
     <b>Do not int(i hate this.)</b>
 <li>Basic dni(homophobia, racist and etc)</li>
-      <li>Under 14,,</li>
+      <li>Under 14,, i'm not sure how i feel about talking to 13 y/os,, it makes me feel old (sorry >_>)</li>
 <li>Sysmeds(this is only for my friend's comfort, pt friends on thin ice as long you respect it.)</li>
-<li>anti ficitonkin/alterhuman/etc.</li>
-<li>WEIRD forsaken/phighting/BT fans</li>
+<li>anti ficitonkin/alterhuman/etc. follow you're own dni.</li>
+<li>WEIRD forsaken/phighting/BT fans,, </li>
 <li>proship/darkship(please seek help, i say it's very unhealthy.)</li>
 <li>ex-friends unless i int(ONLY forgiving friends)</li> 
 <img src="https://64.media.tumblr.com/7ae95781b198dd525ecb7573d1d2c847/b02c1f813b3b9cb7-08/s2048x3072/34097810c58e47ce462e7d18ac0a5376fdc36f5e.pnj">
