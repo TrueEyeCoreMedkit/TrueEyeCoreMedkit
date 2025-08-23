@@ -9,7 +9,7 @@
 <p align ="left">
 <Img src="https://i.postimg.cc/mDVBd6Cm/Soda-Mini-Ban-Hammer-ezgif-com-rotate.png"><img src="https://static.wikitide.net/phightingwiki/thumb/a/ac/Soda_Mini_Medkit.png/139px-Soda_Mini_Medkit.png"><br><img src="https://64.media.tumblr.com/93519f8fc2a9af3520b8be68a05e876e/aa8285e980d2a152-9b/s400x600/33fe7a9200dc4bb2fc92df8fb587de26d742b62c.pnj">
 <li>I'm 15. yes, I'm working and trying my best to focus. I can be tired or childish at times.</li>
-<li>i'm questioning median and osdd-1a plural of 8-9 facets. i'm still working on my research.</li>
+<li>i'm questioning median and osdd-1a plural of 8-9 facets. i'm still working on my research. While i'm doing research i will not talk about my facets source due to this,, BUT you can talk to me about kintypes instead/lh</li>
 <li>I'm a Artist, and sometimes a Cartoonist. I like really cool comics like awful hospital. I also 3D model aside for my wip projects.</li>
 <li>I'm a fictionkin of 29 kins, spsps sourcemates are cool but my socializing isn't lol</li ><li>The artstyle have on my tumblr is based on my friend, as i'm inspired.</li>
 <p align ="center">
