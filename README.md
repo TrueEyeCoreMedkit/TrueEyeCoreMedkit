@@ -17,4 +17,17 @@ heres info about me
 <li>I have few friends, i love to be friends but However i'm picky with friends requests due to trust issues. I will rather that i will friend you if we talk lot or i know you <b>well.</b></li>
 <li> I'm a questioning plural, i'm doing my reserches still but that doesn't mean i let you do source talk unless i know you.</li>
 <li> i'm a big fan of blinkies + Bright clors of themm..... you'll see me placing them in-sigh LOL</li>
+
+
 <img src="https://64.media.tumblr.com/f275e802113dfb92d99251449948cbab/c4bd71251a0a1a8a-5a/s2048x3072/1dcbef630b8cdb98f6182ea0c1e9e936afd74576.pnj">
+
+<img src="https://i.postimg.cc/vT9C8W5R/blinkies-Cafe-7b.gif"><br><img src="https://64.media.tumblr.com/ae6e9c6e0f71d1e7fad7c3f307c182bd/c4bd71251a0a1a8a-04/s400x600/923b942c1bc0051a7ed602a010147cad4eeb2d31.pnj"><img src="https://64.media.tumblr.com/e8010cad17a3757f390776e262e7dca6/8fef538bae7a40a0-05/s100x200/476d0d9cd2ffa4cb92a00e36a5d8c3d2a583dcc4.gifv">
+
+<IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Basic dni crieta<br>
+<IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Proship/Darkship<br>
+<IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- sysmeds(MY friends on thin ice, place this here cuz this is for my other friend's comfort)<br>
+<IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Anti Fictionkin/Therian/System/Alterhuman<br>
+<IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Ex-friends unless <B>I INT FIRST(this is for forgiving ones only)</B><br>
+<img src="https://64.media.tumblr.com/d632a78a693f237512f19f6c6d0e818a/c4bd71251a0a1a8a-f0/s2048x3072/aecd5aa1d2b6397bd602910c2681fcc17f276d29.pnj"><br>
+<p align="center">
+<img src="https://blinkie-net.neocities.org/Stamps/5/5.gif"><img src="https://blinkie-net.neocities.org/Stamps/8/jade.gif"><img src="https://blinkie-net.neocities.org/Stamps/8/girlsRcool.jpg"><img src="https://blinkie-net.neocities.org/Stamps/rainbow3.gif"><img src="https://64.media.tumblr.com/c3aa1c2738f16e68831488e03abbc7be/152dea0b0c5060b9-66/s100x200/0f005cf696451d61330bab28d726fba6a15e62bb.pnj">
