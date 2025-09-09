@@ -16,12 +16,15 @@ heres info about me
 <li>I'm a Fictionkin, Otherkin, and I'm more relate of fictionkin stuff.</li>
 <li>I have few friends, i love to be friends but However i'm picky with friends requests due to trust issues. I will rather that i will friend you if we talk lot or i know you <b>well.</b></li>
 <li> I'm a questioning plural, i'm doing my reserches still but that doesn't mean i let you do source talk unless i know you.</li>
-<li> i'm a big fan of blinkies + Bright clors of themm..... you'll see me placing them in-sigh LOL</li>
+<li> i'm a big fan of blinkies + Bright clors of themm..... you'll see me placing them in-sight LOL</li>
 
+!!MAY BE AGRESSIVE TO PHIGHTING FANS DUE TO PAST EXPERIENCE WITH THEM!!/nm
+phighting fans extremely iwc unless friend.
 
 <img src="https://64.media.tumblr.com/f275e802113dfb92d99251449948cbab/c4bd71251a0a1a8a-5a/s2048x3072/1dcbef630b8cdb98f6182ea0c1e9e936afd74576.pnj">
 
-<img src="https://i.postimg.cc/vT9C8W5R/blinkies-Cafe-7b.gif"><br><img src="https://64.media.tumblr.com/ae6e9c6e0f71d1e7fad7c3f307c182bd/c4bd71251a0a1a8a-04/s400x600/923b942c1bc0051a7ed602a010147cad4eeb2d31.pnj"><img src="https://64.media.tumblr.com/e8010cad17a3757f390776e262e7dca6/8fef538bae7a40a0-05/s100x200/476d0d9cd2ffa4cb92a00e36a5d8c3d2a583dcc4.gifv">
+<img src="https://64.media.tumblr.com/ae6e9c6e0f71d1e7fad7c3f307c182bd/c4bd71251a0a1a8a-04/s400x600/923b942c1bc0051a7ed602a010147cad4eeb2d31.pnj"><img src="https://64.media.tumblr.com/e8010cad17a3757f390776e262e7dca6/8fef538bae7a40a0-05/s100x200/476d0d9cd2ffa4cb92a00e36a5d8c3d2a583dcc4.gifv"><br>
+<img src="https://i.postimg.cc/vT9C8W5R/blinkies-Cafe-7b.gif">
 
 <IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Basic dni crieta<br>
 <IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Proship/Darkship<br>
