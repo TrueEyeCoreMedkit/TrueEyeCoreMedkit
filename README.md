@@ -29,7 +29,7 @@ THIS PAGE IS STILL WIP BUT I'M GETTING THERE!
 <img src="https://64.media.tumblr.com/ae6e9c6e0f71d1e7fad7c3f307c182bd/c4bd71251a0a1a8a-04/s400x600/923b942c1bc0051a7ed602a010147cad4eeb2d31.pnj"><img src="https://64.media.tumblr.com/e8010cad17a3757f390776e262e7dca6/8fef538bae7a40a0-05/s100x200/476d0d9cd2ffa4cb92a00e36a5d8c3d2a583dcc4.gifv"><br>
 <img src="https://i.postimg.cc/vT9C8W5R/blinkies-Cafe-7b.gif">
 
-<IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Basic dni crieta<br>
+<IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Basic dni crieta & under 14<br>
 <IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Proship/Darkship<br>
 <IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- sysmeds(MY friends on thin ice, place this here cuz this is for my other friend's comfort)<br>
 <IMG SRC="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> -- Anti Fictionkin/Therian/System/Alterhuman<br>
