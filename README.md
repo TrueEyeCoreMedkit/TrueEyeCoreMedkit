@@ -17,9 +17,12 @@ heres info about me
 <li>I have few friends, i love to be friends but However i'm picky with friends requests due to trust issues. I will rather that i will friend you if we talk lot or i know you <b>well.</b></li>
 <li> I'm a questioning plural, i'm doing my reserches still but that doesn't mean i let you do source talk unless i know you.</li>
 <li> i'm a big fan of blinkies + Bright clors of themm..... you'll see me placing them in-sight LOL</li>
-
+<br>
 !!MAY BE AGRESSIVE TO PHIGHTING FANS DUE TO PAST EXPERIENCE WITH THEM!!/nm
 phighting fans extremely iwc unless friend.
+<br>
+
+THIS PAGE IS STILL WIP BUT I'M GETTING THERE!
 
 <img src="https://64.media.tumblr.com/f275e802113dfb92d99251449948cbab/c4bd71251a0a1a8a-5a/s2048x3072/1dcbef630b8cdb98f6182ea0c1e9e936afd74576.pnj">
 
