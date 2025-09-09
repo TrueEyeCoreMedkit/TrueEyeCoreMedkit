@@ -2,12 +2,13 @@
 
 <img src="https://i.postimg.cc/LshnhX54/blinkies-Cafe-k-T.gif"><img src="https://64.media.tumblr.com/e8010cad17a3757f390776e262e7dca6/8fef538bae7a40a0-05/s100x200/476d0d9cd2ffa4cb92a00e36a5d8c3d2a583dcc4.gifv">
 <img src="https://64.media.tumblr.com/d632a78a693f237512f19f6c6d0e818a/c4bd71251a0a1a8a-f0/s2048x3072/aecd5aa1d2b6397bd602910c2681fcc17f276d29.pnj">
-
+<img src="https://64.media.tumblr.com/ae6e9c6e0f71d1e7fad7c3f307c182bd/c4bd71251a0a1a8a-04/s400x600/923b942c1bc0051a7ed602a010147cad4eeb2d31.pnj"><br>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=true&background_color=ffd642&interchange=true&bar_color=ff1414&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 <img src="https://64.media.tumblr.com/13ba85bc92ef098b48090dc895c25d23/65cbae88d830cf89-0d/s250x400/509b3b889d9249ee18679c10b63bd7590bf10764.gifv">
 <br><img src="https://i.postimg.cc/jdFVtdp4/blinkies-Cafe-9-J.gif">
+<img src="https://64.media.tumblr.com/fb205f125d7dd88c1c8dcddd1ded9f6c/ef66ba8d92f0d82a-de/s2048x3072/c33ed096c451e6fd7e2022d645ce11cb4077b0d6.pnj">
 
-<img src="https://64.media.tumblr.com/b4b96597e74ad6b6c7c16df76aed7350/65cbae88d830cf89-58/s75x75_c1/9ccca80b0dc065bc4232e0e324de4a1161c0892e.gifv">Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Kin names included! I'm  15 y/o who just wants  I go by She/any(She/her preferred). I'm an Artist/Cartoonist/3D modeler(I 3D MODELED plushies,, still learning.)
+<img src="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv">Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Kin names included! I'm  15 y/o who just wants  I go by She/any(She/her preferred). I'm an Artist/Cartoonist/3D modeler(I 3D MODELED plushies,, still learning.)
 ; Fictionkin/Otherkin and a questioning OSDD-1A + Median Plural of 9 facets w/ fabeings (please use collective or team on me, i dislike being prefer as a 'system' other than plural//nm)...<br>
 <img src="https://64.media.tumblr.com/b4b96597e74ad6b6c7c16df76aed7350/65cbae88d830cf89-58/s75x75_c1/9ccca80b0dc065bc4232e0e324de4a1161c0892e.gifv">
 My favorite hobbies are drawing, roleplaying my OCs and dandy world's characters in my toyhouse & Tumblr(side-blog), game dev as well (dreaming of making a dreamcore game!), 
