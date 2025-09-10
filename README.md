@@ -13,7 +13,7 @@
 <img src="https://64.media.tumblr.com/b4b96597e74ad6b6c7c16df76aed7350/65cbae88d830cf89-58/s75x75_c1/9ccca80b0dc065bc4232e0e324de4a1161c0892e.gifv">
 My favorite hobbies are drawing, roleplaying my OCs and dandy world's characters in my toyhouse & Tumblr(side-blog), game dev as well (dreaming of making a dreamcore game!), 
 heres info about me 
-<li>I'm a Fictionkin, Otherkin, and I'm more relate of fictionkin stuff.</li>
+<li>I'm a Fictionkin of 20+, as well small Otherkin of 3, and I'm more relate of fictionkin stuff.</li>
 <li>I have few friends, i love to be friends but However i'm picky with friends requests due to trust issues. I will rather that i will friend you if we talk lot or i know you <b>well.</b></li>
 <li> I'm a questioning plural, i'm doing my reserches still but that doesn't mean i let you do source talk unless i know you.</li>
 <li> i'm a big fan of blinkies + Bright clors of themm..... you'll see me placing them in-sight LOL</li>
