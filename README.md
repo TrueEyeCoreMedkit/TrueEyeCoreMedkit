@@ -9,7 +9,7 @@
 <img src="https://64.media.tumblr.com/fb205f125d7dd88c1c8dcddd1ded9f6c/ef66ba8d92f0d82a-de/s2048x3072/c33ed096c451e6fd7e2022d645ce11cb4077b0d6.pnj">
 
 <img src="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv">Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Kin names included! I'm  15 y/o who just wants  I go by She/any(She/her preferred). I'm an Artist/Cartoonist/3D modeler(I 3D MODELED plushies,, still learning.)
-; Fictionkin/Otherkin and a questioning OSDD-1A + Median Plural of 9 facets w/ fabeings (please use collective or team on me, i dislike being prefer as a 'system' other than plural//nm)...<br>
+; Fictionkin/Otherkin and a questioning OSDD-1A + Median Plural of 9-10(small) facets w/ fabeings (please use collective or team on me, i dislike being prefer as a 'system' other than plural//nm)...<br>
 <img src="https://64.media.tumblr.com/b4b96597e74ad6b6c7c16df76aed7350/65cbae88d830cf89-58/s75x75_c1/9ccca80b0dc065bc4232e0e324de4a1161c0892e.gifv">
 My favorite hobbies are drawing, roleplaying my OCs and dandy world's characters in my toyhouse & Tumblr(side-blog), game dev as well (dreaming of making a dreamcore game!), 
 heres info about me 
