@@ -18,7 +18,7 @@ heres info about me
 <li> I'm a questioning plural, i'm doing my reserches still but that doesn't mean i let you do source talk unless i know you.</li>
 <li> i'm a big fan of blinkies + Bright clors of themm..... you'll see me placing them in-sight LOL</li>
 <br>
-!!MAY BE AGRESSIVE TO PHIGHTING FANS DUE TO PAST EXPERIENCE WITH THEM!!/nm
+!!MAY BE AGRESSIVE TO PHIGHTING FANS DUE TO PAST EXPERIENCE WITH THEM!! BUT I'LL TRY TO BE NICE/nm
 phighting fans extremely iwc unless friend.
 <br>
 
