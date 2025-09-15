@@ -15,4 +15,4 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <p align="center">
 <img src="https://64.media.tumblr.com/7f9c92608446a19fa1c241efbedbe41d/tumblr_po8wucbjOy1y4ljdho1_400.png">
 
-WIP, COME BACK LATERR BROSKIES X_X <img src="https://images.squarespace-cdn.com/content/v1/5db1baf5e77e187293976818/1572371973362-6WORMEKGY005QCD6EI98/ke17ZwdGBToddI8pDm48kJUlZr2Ql5GtSKWrQpjur5t7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z5QPOohDIaIeljMHgDF5CVlOqpeNLcJ80NK65_fV7S1Uc2TsYyWrvo4cxLsTiAHD0wm8wv6KuSQ-vWcvdKCNFvRm4bjm9DAHF2kOsIZRJKXnA/rover.gif">
+WIP, COME BACK LATERR BROSKIES X_X <img src="https://i.pinimg.com/originals/29/b7/48/29b748f2a5ed5ca18916c3d0eab84e83.gif">
