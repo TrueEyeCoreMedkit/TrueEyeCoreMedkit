@@ -16,3 +16,5 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <img src="https://64.media.tumblr.com/7f9c92608446a19fa1c241efbedbe41d/tumblr_po8wucbjOy1y4ljdho1_400.png">
 
 WIP, COME BACK LATERR BROSKIES X_X <img src="https://i.pinimg.com/originals/29/b7/48/29b748f2a5ed5ca18916c3d0eab84e83.gif">
+<p align="right">
+<img src="https://img1.picmix.com/output/stamp/normal/9/9/6/5/2465699_d805c.png">
