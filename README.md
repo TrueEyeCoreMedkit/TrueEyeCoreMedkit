@@ -18,6 +18,7 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <li>i'm a roleplayer as well for my AUs and OCs! Dandy's world roleplay mode is one of my times I RP more than other games, i have AUs of it. </li>
 <li>I love blinkies, stamps, andd graphicsm you see i'm big fan of bright colorz!!</li>
 
+<b>DO NOT BACKSHOT ME AND WHISPER ME WEIRD THINGS, I WILL HIDE YOU FOR STRAIGHT 7 DAYS. NO EXCUSE!!</b>
 <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
   
 <img src="https://i.postimg.cc/yN6Lcjvr/blinkies-Cafe-r-Y.gif"><img src="https://i.postimg.cc/c1c2gKxH/ezgif-com-resize.gif"><br>
