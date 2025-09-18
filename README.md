@@ -28,7 +28,7 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <li>I won't take friend requests UNLESS we talk lot or known you well, yet i'm picky about this due to how my ex-friends are.</li>
 <li>I AM <B>NOT</B> IRL, i do not mind doubles with my kintypes. But hey if you're uncomfy w/ doubles, I'll respect that.</li>
 <li>I may say something that is mistoned,, that's why i use tone tags semi. I'll try to understand myself for now.</li>
-<li>I'm always afk all timed, w2i will be prefer by your optional unless i'm in tab.</li>
+<li>I'm always afk all timed, w2i will be prefer by your optional unless i'm in tab. if i miss your whisper,, then i was afk ;~; </li>
  <li>pretty much more but rather i place this unlisted to save you're reading lol.</li>
 
  <img src="https://i.postimg.cc/GhTMPzGX/blinkies-Cafe-tn.gif"><img src="https://64.media.tumblr.com/2ea02aa890c00279aa0b396d515425e7/281be6bcacc41dca-4a/s250x400/31975cb8b83ed8ee421352a91f4cdea89b318a2c.gifv"><br>
