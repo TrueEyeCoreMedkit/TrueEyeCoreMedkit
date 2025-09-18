@@ -32,6 +32,7 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
  <li>forsaken fans, <b>THINNNN ICE, after what i heard about this fandom. PLEASE IWEC</b></li>
  <li>phighting fans, HEAVY IWEC.</li>
  <li>Sysmeds. I'm gonna hold yer hand with this one.</li>
+ <li>Spawnism cult, please <a href="https://www.helpguide.org/find-help">click this</a> for you're safety, you need to be safe from this CULT/srs.</li>
  <li>THAT one anon who is stalked me, buddy, you're cyberstalking a 15 y/o. i literally blocked you from my ata./dir</li>
  
  <img src="https://64.media.tumblr.com/297cc377206a783b35a418a63c380216/eb5e40a4245fc7b4-66/s500x750/32ee93faaf8f0059ace5f385485bcf979be0c55d.gifv">
