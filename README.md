@@ -6,8 +6,10 @@
 <img src="https://64.media.tumblr.com/5624c41b81ce20f5b282726e34bb3c5e/281be6bcacc41dca-01/s250x400/918fa24f2195617778369cadca07b2e3ffef346c.gifv">
 <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
 <img src="https://i.postimg.cc/d1DVTR82/blinkies-Cafe-4-U.gif"><br>
-Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Kin names included! I'm 15 y/o who just wants I go by She/any(She/her preferred). I love drawing stuff, and I'm a Cartoonist/Artist on Tumblr + Fandom kid(i will NOT be part of forsaken thx)   for those who want to get to know me, heres info about me:
+Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Kin names included! I'm 15 y/o who just wants I go by She/any(She/her preferred). I love drawing stuff, and I'm a Cartoonist/Artist on Tumblr + Fandom kid(i will be apart of forsaken thx), for those who want to get to know me,heres info about me:
 <img src="https://pbs.twimg.com/media/GnPkdiPXAAAJfoM?format=jpg&name=large">
+<li>I'm a Minor(15 y/o) don't be weird!</li>
+<li> I'm always Shedletsky and 007n7 :)c just perfer me as one!.</li>
 <li>I'm an Artist/Cartoonist, sometimes a 3D modeler, as i'm still learning. Dreaming to be a  dreamcore game dev on Roblox </li>
 <li>I'm a questioning median OSDD-1A Plural of 9, just trying to clear up my own research while i'm ok with any systems interacting as long we're buddy buddies.</li>
 <li>I'm a 007n7 consteling and Shedletsky fableing, My source i'm aware that it has bad rep,, but PLEASE i'm trying to separate my source,, just my source <b>IS</b> general roblox thank you!</li>
@@ -18,11 +20,13 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
   
 <img src="https://i.postimg.cc/yN6Lcjvr/blinkies-Cafe-r-Y.gif"><img src="https://i.postimg.cc/c1c2gKxH/ezgif-com-resize.gif"><br>
+<li>I may mispell stuff, DO NOT CORRECT ME. I get annoyed by it even if its a joke.</li>
 <li>I MAY BE AGGRO TO PHIGHTING FANS FOR PERSONAL REASONS. I'll try to be nice with my bluff tone despite my recovering trauma of ph! fandom as well trying to be nice, <b>PLEASE KEEP IN MIND ITS NOT YOUR FAULT I AM LIKE THIS, ITS THE ONES WHO HURTED ME IN THE PAST!!</b> </li>
 <li>I have mood swings, yes. I can be happy and go-lucky all the time, then I can be sad and angry for a while.</li>
 <li>I won't take friend requests UNLESS we talk lot or known you well, yet i'm picky about this due to how my ex-friends are.</li>
 <li>I AM <B>NOT</B> IRL, i do not mind doubles with my kintypes. But hey if you're uncomfy w/ doubles, I'll respect that.</li>
 <li>I may say something that is mistoned,, that's why i use tone tags semi. I'll try to understand myself for now.</li>
+<li>I'm always afk all timed, w2i will be prefer by your optional unless i'm in tab.</li>
  <li>pretty much more but rather i place this unlisted to save you're reading lol.</li>
 
  <img src="https://i.postimg.cc/GhTMPzGX/blinkies-Cafe-tn.gif"><img src="https://64.media.tumblr.com/2ea02aa890c00279aa0b396d515425e7/281be6bcacc41dca-4a/s250x400/31975cb8b83ed8ee421352a91f4cdea89b318a2c.gifv"><br>
