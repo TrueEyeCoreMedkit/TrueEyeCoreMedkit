@@ -39,6 +39,7 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
  <li>Sysmeds. I'm gonna hold yer hand with this one.</li>
  <li>Spawnism cult, please <a href="https://www.helpguide.org/find-help">click this</a> for you're safety, you need to be safe from this CULT/srs.</li>
  <li>THAT one anon who is stalked me, buddy, you're cyberstalking a 15 y/o. i literally blocked you from my ata./dir</li>
+ <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
  
  <img src="https://64.media.tumblr.com/297cc377206a783b35a418a63c380216/eb5e40a4245fc7b4-66/s500x750/32ee93faaf8f0059ace5f385485bcf979be0c55d.gifv">
  Have my graphics boy-oh!(also check out my friends stuff by clicking on their tag!)
