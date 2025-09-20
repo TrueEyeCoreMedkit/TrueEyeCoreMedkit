@@ -12,7 +12,7 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <li>Genderqueer, Lesbian, and Demiromantic femme.</li>
 <li> I'm always Shedletsky and 007n7 :)c just perfer me as one!.</li>
 <li>I'm an Artist/Cartoonist, sometimes a 3D modeler, as i'm still learning. Dreaming to be a  dreamcore game dev on Roblox </li>
-<li>I'm a median OSDD-1A Plural of 9, research done, i use i/me and rarely we/us! while i'm ok with any systems interacting as long we're buddy buddies.</li>
+<li>I'm a median OSDD-1A Plural of 11, research done, i use i/me and rarely we/us! while i'm ok with any systems interacting as long we're buddy buddies.</li>
 <li>I'm a 007n7 consteling and Shedletsky fableing, My source i'm aware that it has bad rep,, but PLEASE i'm trying to separate my source,, just my source <b>IS</b> general roblox thank you!</li>
 <li>I have LOTS of kintypes maybe like 20+?? also with 3 otherkin!</li>
 <li>i'm a roleplayer as well for my AUs and OCs! Dandy's world roleplay mode is one of my times I RP more than other games, i have AUs of it. </li>
