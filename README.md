@@ -8,7 +8,7 @@
 <img src="https://i.postimg.cc/d1DVTR82/blinkies-Cafe-4-U.gif"><br>
 Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Kin names included! I'm 15 y/o who just wants I go by She/any(She/her preferred). I love drawing stuff, and I'm a Cartoonist/Artist on Tumblr + Fandom kid(i will be apart of forsaken thx), for those who want to get to know me,heres info about me:
 <img src="https://pbs.twimg.com/media/GnPkdiPXAAAJfoM?format=jpg&name=large">
-<img src="https://64.media.tumblr.com/5624c41b81ce20f5b282726e34bb3c5e/281be6bcacc41dca-01/s250x400/918fa24f2195617778369cadca07b2e3ffef346c.gifv">
+<img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
 <li>I'm a Minor(15 y/o) don't be weird!</li>
 <li>Genderqueer, Lesbian, and Demiromantic femme.</li>
 <li> I'm always Shedletsky and 007n7 :)c just perfer me as one!.</li>
