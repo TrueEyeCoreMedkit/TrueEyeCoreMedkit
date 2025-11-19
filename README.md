@@ -28,18 +28,17 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <li>I MAY BE AGGRO TO PHIGHTING FANS FOR PERSONAL REASONS. I'll try to be nice with my bluff tone despite my recovering trauma of ph! fandom as well trying to be nice, <b>PLEASE KEEP IN MIND ITS NOT YOUR FAULT I AM LIKE THIS, ITS THE ONES WHO HURTED ME IN THE PAST!!</b> </li>
 <li>I have mood swings, yes. I can be happy and go-lucky all the time, then I can be sad and angry for a while.</li>
 <li>I won't take friend requests UNLESS we talk lot or known you well, yet i'm picky about this due to how my ex-friends are.</li>
-<li>I AM <B>NOT</B> IRL, i do not mind doubles with my kintypes. But hey if you're uncomfy w/ doubles, I'll respect that.</li>
+<li>I AM <B>IRL</B> , i do not mind doubles with my kintypes. But hey if you're uncomfy w/ doubles, I'll respect that.</li>
 <li>I may say something that is mistoned,, that's why i use tone tags semi. I'll try to understand myself for now.</li>
 <li>I'm always afk all timed, w2i will be prefer by your optional unless i'm in tab. if i miss your whisper,, then i was afk ;~; </li>
  <li>pretty much more but rather i place this unlisted to save you're reading lol.</li>
 
  <img src="https://i.postimg.cc/GhTMPzGX/blinkies-Cafe-tn.gif"><img src="https://64.media.tumblr.com/2ea02aa890c00279aa0b396d515425e7/281be6bcacc41dca-4a/s250x400/31975cb8b83ed8ee421352a91f4cdea89b318a2c.gifv"><br>
  <li>Basic dni + Under 14</li>
- <li> Proship/darkship(please follow your own dni, just becuase i'm <b>NOT</b> forsaken sourced doesn't mean you get to cuddle on with me/dir</li>
+ <li> Proship/darkship(i will hide them,,)</li>
  <li>phighting fans, HEAVY IWEC.</li>
  <li>Sysmeds. I'm gonna hold yer hand with this one.</li>
- <li>Spawnism cult, please <a href="https://www.helpguide.org/find-help">click this</a> for you're safety, you need to be safe from this CULT/srs.</li>
- <li>THAT one anon who is stalked me, buddy, you're cyberstalking a 15 y/o. i literally blocked you from my ata./dir</li>
+ <li>THAT one anon who is commenting EVERY ata with hate comment, buddy, you're stalking a 15 y/o. i literally blocked you from my ata./dir</li>
  <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
  
  <img src="https://64.media.tumblr.com/297cc377206a783b35a418a63c380216/eb5e40a4245fc7b4-66/s500x750/32ee93faaf8f0059ace5f385485bcf979be0c55d.gifv">
