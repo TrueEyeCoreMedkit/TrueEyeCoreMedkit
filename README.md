@@ -10,14 +10,14 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
 <img src="https://pbs.twimg.com/media/GnPkdiPXAAAJfoM?format=jpg&name=large">
 <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
-<li>I'm a Minor(15 y/o) don't be weird!</li>
-<li>Genderqueer, Lesbian, and Demiromantic femme.</li>
+<li>I'm a Minor(15 y/o)</li>
+<li>femme lesbian, </li>
 <li> I'm always Shedletsky and 007n7 :)c just perfer me as one!.</li>
 <li>I'm an Artist/Cartoonist, sometimes a 3D modeler, as i'm still learning. Dreaming to be a  dreamcore game dev on Roblox </li>
 <li>I'm a median OSDD-1A Plural of 11, research done, i use i/me and rarely we/us! while i'm ok with any systems interacting as long we're buddy buddies(including endos, you guys are nice<3).</li>
-<li>I'm a 007n7 consteling and Shedletsky fableing, My source i'm aware that it has bad rep,, but PLEASE i'm trying to separate my source,, just my source <b>IS</b> general roblox thank you!</li>
+<li>I'm a Medkit + Dom phighting IRL,, i'm idc about doubles. </li>
 <li>I have LOTS of kintypes maybe like 20+?? also with 3 otherkin!</li>
-<li>i'm a roleplayer as well for my AUs and OCs! Dandy's world roleplay mode is one of my times I RP more than other games, i have AUs of it. </li>
+<li>i'm a roleplayer for my AUs and OCs! Dandy's world roleplay mode is one of my times I RP more than other games, i have AUs of it. </li>
 <li>I love blinkies, stamps, andd graphicsm you see i'm big fan of bright colorz!!</li>
 <br>
 <b>DO NOT BACKSHOT ME AND WHISPER ME WEIRD THINGS, I WILL HIDE YOU FOR STRAIGHT 7 DAYS. NO EXCUSE!! EVEN IF ITS JUST A "JOKE"</b>
@@ -35,8 +35,9 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 
  <img src="https://i.postimg.cc/GhTMPzGX/blinkies-Cafe-tn.gif"><img src="https://64.media.tumblr.com/2ea02aa890c00279aa0b396d515425e7/281be6bcacc41dca-4a/s250x400/31975cb8b83ed8ee421352a91f4cdea89b318a2c.gifv"><br>
  <li>Basic dni + Under 14</li>
- <li> Proship/darkship(i will hide them,,)</li>
- <li>phighting fans, HEAVY IWEC.</li>
+ <li>Anti fictionkin/IRL/System/Alterhuman,. </li>
+ <li> Proship/darkship(i hide them perm due to discomfort.)</li>
+ <li>phighting fans, HEAVY IWEC unless friends.</li>
  <li>Sysmeds. I'm gonna hold yer hand with this one.</li>
  <li>THAT one anon who is commenting EVERY ata with hate comment, buddy, you're stalking a 15 y/o. i literally blocked you from my ata./dir</li>
  <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
