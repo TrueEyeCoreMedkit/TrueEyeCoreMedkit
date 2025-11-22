@@ -11,7 +11,7 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <img src="https://pbs.twimg.com/media/GnPkdiPXAAAJfoM?format=jpg&name=large">
 <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
 <li>I'm a Minor(15 y/o)</li>
-<li>femme lesbian, </li>
+<li>femme lesbian, yes i'm a gal.  </li>
 <li> I'm always Shedletsky and 007n7 :)c just perfer me as one!.</li>
 <li>I'm an Artist/Cartoonist, sometimes a 3D modeler, as i'm still learning. Dreaming to be a  dreamcore game dev on Roblox </li>
 <li>I'm a median OSDD-1A Plural of 11, research done, i use i/me and rarely we/us! while i'm ok with any systems interacting as long we're buddy buddies(including endos, you guys are nice<3).</li>
