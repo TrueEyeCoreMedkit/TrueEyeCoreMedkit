@@ -1,4 +1,4 @@
-<h3>WARNING SOME STAMPS, BLINKIES, AND DIVIDERS MAY CONTAIN FAST MOVEMENT, AND FLASHING!!!,, DISCLAIMER: FYI, I AM AGGRO TO PHIGHTING FANS CUZ MY PERSONAL EXPERIENCE W/ THE FANS AND MY EX-FRIEND; I MAY NOT TRUST YOU UNLESS I SEE YOU AS A FRIEND,, BE AWARE!!//lh</h3>
+<h3>WARNING SOME STAMPS, BLINKIES, AND DIVIDERS MAY CONTAIN FAST MOVEMENT, AND FLASHING!!!,,!//lh</h3>
 <img src="https://64.media.tumblr.com/d632a78a693f237512f19f6c6d0e818a/c4bd71251a0a1a8a-f0/s2048x3072/aecd5aa1d2b6397bd602910c2681fcc17f276d29.pnj">
 <img src="https://i.postimg.cc/Wtcqk4Cn/blinkies-Cafe-m-X.gif">
 
@@ -15,7 +15,7 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 <li> I'm always Shedletsky and 007n7 :)c just perfer me as one,, however... Medkit is my 'first' kin,, also fableing he's me so treat him organically.</li>
 <li>I'm an Artist/Cartoonist, sometimes a 3D modeler, as i'm still learning. Dreaming to be a dreamcore game dev on Roblox.. Very whimsical. </li>
 <img src="https://64.media.tumblr.com/d632a78a693f237512f19f6c6d0e818a/c4bd71251a0a1a8a-f0/s2048x3072/aecd5aa1d2b6397bd602910c2681fcc17f276d29.pnj">
-<li>I'm a median OSDD-1A Plural of 11, i use i/me and rarely we/us! while i'm ok with any systems interacting as long as we're buddy buddies(including endos, cuz endos isn't my business.).</li>
+<li>I'm a median OSDD-1A Plural of 11, i use i/me and barely of we/us! while i'm ok with any systems interacting as long as we're buddy buddies(including endos.).</li>
 <li>I'm a 007n7 consteling and Shedletsky fableing, My source i'm aware that it has bad rep,, but PLEASE i'm trying to separate my source,, just my source <b>IS</b> general roblox thank you!</li>
 <li>I have LOTS of kintypes maybe like 20+?? also with 3 otherkin, i will love to yap abt my kintypes!</li>
 <li>i'm a roleplayer as well for my AUs and OCs on toyhouse! Dandy's world roleplay mode is one of my times I RP more than other games, i have AUs of it. </li>
