@@ -1,1 +1,2 @@
-wip
+<img src ="https://i.postimg.cc/zG7DyqRr/IMG-8642-ezgif-com-webp-to-gif-converter.gif"><br>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color_cover=true&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&redirect=true)
