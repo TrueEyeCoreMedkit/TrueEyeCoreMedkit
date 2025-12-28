@@ -13,4 +13,8 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Dom, and Kizper,, Kin 
   <li> i am Medkit + Dom IRL, Subspaces kin/sys/etc hvyiwc with me due to past with ex friend. /nm</li>
   <li> Otherkin(deerkin + Chickenkin) + Fictionkin, worah</li>
   <li>Transneutral femme + gay gay gay/j</li>
+  <li>I am childish Medkittt,, even it may seem odd considering my canonpart but hehehe who knows?!</li>
+  <li>my fave song is Tamagochi(togther forever) by Daze + operator by Miss Papaya!</li>
+<img src="https://i.postimg.cc/j5F4tVhf/IMG-8645.png">
+<img src="https://i.postimg.cc/Nf4SvFHX/blinkies-Cafe-XL.gif">
 <img src="https://camo.githubusercontent.com/af15fbdc6a40c02e69dba3093b9d3558ac5ac5a4d323a872b406fe173952214e/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f64363332613738613639336632333735313266313966366336643065383138612f633462643731323531613061316138612d66302f733230343878333037322f616563643561613164326236333937626436303239313063323638316663633137663237366432392e706e6a">
