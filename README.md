@@ -7,7 +7,7 @@
 
 
 Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Dom, and Kizper,, Kin names included! This github is for ponytown only! i have other socials aswell but right now i'm busy from social medias of mines X_X...
-<li>I am a OSDD-1A median sys,, while i'm median one... i do not mind endogenic/non-traumagenic systems interacting with me, do not try to change my mind just because i said i do not mind them.</li>
+<li>I am a OSDD-1A median sys,, while i'm median + traumagenic one... i do not mind endogenic/non-traumagenic systems interacting with me, do not try to change my mind just because i said i do not mind them.</li>
 <li>I am 15 years old, yes i'm a minor. I'm turning 16 in feb 17 ((OLD. @_@))</li>
 <li>I'm also an Artist/Roleplayer/Gamer + Amtaure 3D Modeler lalala(i hate UV Mapping <3)</li>
   <li> i am Medkit + Dom IRL, Subspaces kin/sys/etc hvyiwc with me due to past with ex friend. /nm</li>
