@@ -1,4 +1,4 @@
-<h3>GUYS I'M REMWORKJING ON THIS TRUSTTEH PROCRESSS,,,!!/h3>
+<h3>GUYS I'M REMWORKJING ON THIS TRUSTTEH PROCRESSS,,,!!</h3>
 <img src="https://64.media.tumblr.com/431951787c9d21fc9b6bf2b754dd948b/8dfe92c35c99d6eb-e5/s2048x3072/04a291d399c97bbc9629c47e39113697fc8abf1c.pnj">
 <img src="https://i.postimg.cc/bvrh6ys8/blinkies-Cafe-ra.gif">
 
