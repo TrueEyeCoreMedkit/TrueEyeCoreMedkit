@@ -8,9 +8,9 @@
 <img src="https://i.postimg.cc/d1DVTR82/blinkies-Cafe-4-U.gif"><br>
 Hello there! I'm Kiz, you can call me Medkit/Kiz/Dusekkar,, Kin names included! I'm 15(turning 16 in a month  cuz i'm OLDD) y/o who just wants I go by She/any(She/her preferred). I love drawing stuff, and I'm a Cartoonist/Artist on Tumblr + Fandom kid for those who want to get to know me,heres info about me:
 <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
-<img src="https://pbs.twimg.com/media/GnPkdiPXAAAJfoM?format=jpg&name=large">
+<img src="https://pbs.twimg.com/media/G36IRjfXgAAZdSH.jpg">
 <img src="https://64.media.tumblr.com/e7a0465180b414c3ec4486e500be9021/7f6fdf60a5a26eb0-a0/s2048x3072/4c7c7ff18751988a887cd28c348780c5caedde68.pnj">
-<li>I'm a Minor(15 y/o) don't be weird!</li>
+<li>I'm a Minor(15 y/o)</li>
 <li>Genderqueer, femme, and Transneutral. </li>
 <li> I'm always Medkit:)c just perfer me as one!.</li>
 <li>I'm an Artist/Cartoonist, sometimes a 3D modeler, as i'm still learning. Dreaming to be a  dreamcore game dev on Roblox </li>
