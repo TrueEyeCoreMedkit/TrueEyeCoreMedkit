@@ -34,6 +34,6 @@ Hello there! I'm Kiz, you can call me Medkit/Kiz/Dusekkar,, Kin names included! 
 
  <img src="https://i.postimg.cc/GhTMPzGX/blinkies-Cafe-tn.gif"><img src="https://64.media.tumblr.com/2ea02aa890c00279aa0b396d515425e7/281be6bcacc41dca-4a/s250x400/31975cb8b83ed8ee421352a91f4cdea89b318a2c.gifv"><br>
  <li>Basic dni + Under 14</li>
- <li> Proship/darkship(please follow your own dni, just becuase i'm <b>NOT</b> forsaken sourced doesn't mean you get to cuddle on with me/dir</li>
+
  <li>phighting fans, HEAVY IWECuf, subspace skins/systems/etc mainly hvyiwec because personal experience with an ex-friend whom an Subspace fictive(they we're bad friend....)</li>
  <li>Sysmeds. I'm gonna hold yer hand with this one. JUST because i am traumagenic system, doesn't mean i am gonna hate on other system origins !!!!</li>
