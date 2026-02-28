@@ -17,10 +17,9 @@
 <img src="https://pixelbank.neocities.org/div/multi/280.gif">
 <img src="https://64.media.tumblr.com/tumblr_ma30e730ed1rtu4cho1_250.gif"><img src="https://i.postimg.cc/fk4fFYVK/blinkies-Cafe-KG-(1).gif">
 <li>Baaic dni crit</li>
-<li>radqueers unless you are recovering</li>
 <li>sysmeds, as a OSDD-1, why are you invading someone's disorder??? lol... blocked.</li>
 <li>the fans of phighting fandom who have HURT/verbal abuse ME in the past, i'm looking at you astro/Swervy7, and any of his friends.../hvyneg</li>
-<li>the loud house(the show)</li>
+<li>the loud house(the show/fandom)</li>
 <li>anti fictionkin/systems/alterhumans</li>
 <li>under 14, i'm turning old sorry folks...</li>
 Just don't be meanie and we'll be chilling with long bacon store scarf.
