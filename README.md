@@ -10,6 +10,7 @@
   <li>I LOVEEE kidcore, 2000s stuff, and dreamcore/weirdcore aesthetic! they're my main flavorites :DDDDD</li>
   <li>Feel free to cuddle and hide with me, i'm ususally offtab, busy and sleeping Whisper 2 int if you want. ^q^</li>
   <li>Boggles(meleeniacs) selfshipper n proud with garbo(me!)</li>
+  <li>I'm probably the garbo who afks a lot</li>
 <img src="https://64.media.tumblr.com/70392b5ff9b288da3a8c916340c50e2f/da5110e79d297768-fb/s2048x3072/0bd30c8c874a523f0f7613f9b7dca1f6bda600d1.pnj">
 <img src="https://64.media.tumblr.com/38590d530ce840a2b58284d733e39052/2d194cf22ba2771b-36/s1280x1920/467d7166666ce5840884ef91d055bd8ade64fe4d.pnj">
 
