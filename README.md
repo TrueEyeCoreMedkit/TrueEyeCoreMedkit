@@ -9,6 +9,7 @@
   <li>I'm an Agedre/Caregiver for friends, iffy with stranger but i'll try to help ^_^</li>
   <li>I LOVEEE kidcore, 2000s stuff, and dreamcore/weirdcore aesthetic! they're my main flavorites :DDDDD</li>
   <li>Feel free to cuddle and hide with me, i'm ususally offtab, busy and sleeping Whisper 2 int if you want. ^q^</li>
+  <li>Boggles(meleeniacs) selfshipper n proud with garbo(me!)</li>
 <img src="https://64.media.tumblr.com/70392b5ff9b288da3a8c916340c50e2f/da5110e79d297768-fb/s2048x3072/0bd30c8c874a523f0f7613f9b7dca1f6bda600d1.pnj">
 <img src="https://64.media.tumblr.com/38590d530ce840a2b58284d733e39052/2d194cf22ba2771b-36/s1280x1920/467d7166666ce5840884ef91d055bd8ade64fe4d.pnj">
 
@@ -29,7 +30,9 @@ it's not your fault.</li>
 <li>You harass people over their mental disorders, aka sysmeds or any above.</li>
 <li>anti fictionkin/system/Otherkin/Yumeship,</li>
 <li>anti agere, petre, and agedre. agere is compeletly sfw and <b>you are confusing the wrong term/define which is aka ddlg/ddlp DO NOT MIXED THEM WITH AGERE.</b></li>
-<li>Pretty much just don't be an meanie :( </li>
+<li>under 14/15 y/o</li>
+<li>Another boggles Selfshipper, maybe thin ice since i'm pretty much selective-selfshipper of her... i'm sowry :( </li>
+<li>Pretty much just don't be an meanie.</li>
 <img src="https://64.media.tumblr.com/ed84b9e3d02d2080fe9a74d6c40fc48c/b02c1f813b3b9cb7-36/s2048x3072/3390e0008cd756188381df4f57615b208246ba0c.pnj">
 <img src="https://64.media.tumblr.com/1d4605a3dee835aa0d1e85270c005877/7cb15113da0f539c-3f/s100x200/bc86fbdbcc7a44db35d016146c9c68b08e570b37.gifv"> blinkies and stamps showcae lolz
 <img src="https://64.media.tumblr.com/d2eabfc57c7f361eefdaf034f9f20f6e/tumblr_ok9cy2XlUB1udc3abo6_500.gifv">
