@@ -22,7 +22,7 @@ it's not your fault.</li>
 <li> i can be protective with my friends and/or their friends, if any hate to them, i swear to god i'll play nice if pushed limited then you'll see ugly side of me(aka my anger issuses.) i'm warning you or i'll hide you with no trace.</li>
 <li>i struggled making friends due to my social akwardness, trust me. I've been through this.</li>
 <li>i like roleplaying with friends, it may be odd to roleplay with me if it's a stranger or without asking.</li>
-<li>PHIGHTING! FANS ON THIN ICE UNLESS FRIEND I REPEAT, UNLESS FRIEND.</li>
+<li>PHIGHTING! & HOMESTUCK FANS ON THIN ICE UNLESS FRIEND I REPEAT, UNLESS FRIEND.</li>
 <li>If you see my skin or gifted getting copied or uploaded, notify me immediately. If you the one copying my skins or so you'll be confronted and hidden permentanly</li>
 <IMG SRC="https://64.media.tumblr.com/84f3f4f7e855c8c46ddbcfd3422ab5a9/ad2a56cf203f3aeb-aa/s2048x3072/791315d65ac888e4325f38045d7afc4739cd9a2c.pnj">
 <img src="https://i.postimg.cc/Y95cVSnj/blinkies-Cafe-zv.gif">
