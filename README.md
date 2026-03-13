@@ -7,6 +7,7 @@
   
   Hello hi, welcome to my readme.md! i'm Medkit/Kiz, but i go by with few names as Garbo, Caretaker, Kipper, and Shed, I don't mind friends giving us nicknames =3
   you'll see me in garbo skin, i'm mostly here at the bakery or with friends cuddling me! if you want to know me here's things about me!:
+  <li>I'm a OSDD-1a system, NO SYSCOURSE OR I'LL EXPLODE YOUUUU I JUST NEED FRIENDS/neg</li>
   <li>i'm fictionkin and otherkin! we have lots of kins and very few otherkins, i prefered to be a deer & robotic</li>
   <li>i'm a minor(16 y/o), i don't use 'bodily' despite me being system.</li>
   <li>I'm an Agedre/Caregiver for friends, iffy with stranger but i'll try to help ^_^</li>
