@@ -37,6 +37,8 @@ it's not your fault.</li>
 <img src="https://64.media.tumblr.com/ed84b9e3d02d2080fe9a74d6c40fc48c/b02c1f813b3b9cb7-36/s2048x3072/3390e0008cd756188381df4f57615b208246ba0c.pnj">
 <img src="https://64.media.tumblr.com/dcd3e48257370ca90eb48dac9e394dfc/da4b6095b89d958f-11/s2048x3072/92201a2f59b875d2c8061fd17f855766d39b1ace.pnj"> 
 <p align="center">
+<img src="https://i.postimg.cc/GpWC60C3/Untitled3237-20260312173242-ezgif-com-resize.webp"><br>Mari-anna my fictionial child :3(i know she's canonly 42 but still... my child figure =3)
+<p align="center">
 wip on this side
 <img src="https://64.media.tumblr.com/dcd3e48257370ca90eb48dac9e394dfc/da4b6095b89d958f-11/s2048x3072/92201a2f59b875d2c8061fd17f855766d39b1ace.pnj">
 <p align="center"> 
