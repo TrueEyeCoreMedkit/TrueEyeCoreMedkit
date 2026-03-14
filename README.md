@@ -37,7 +37,7 @@ it's not your fault.</li>
 <li>anti agere, petre, and agedre. agere is compeletly sfw and <b>you are confusing the wrong term/define which is aka ddlg/littlespace DO NOT MIXED THEM WITH AGERE.</b></li>
 <li>under 14/15 y/o</li>
 <li>Another boggles Selfshipper, maybe thin ice since i'm pretty much selective-selfshipper of her... i'm sowry :( </li>
-<li>Subspace introj/kins/etc, nothing against yall. But iwecuf due to reminded of my ex-friend unless you are trusted for me./nm</li>
+<li>Subspace introj/kins/etc, nothing against yall. But iwecuf due to reminded of my ex-friend unless you are trusted for me. Comig from medkit introject + fictionkin./nm</li>
 <li>Pretty much just don't be an meanie.</li>
 <img src="https://64.media.tumblr.com/ed84b9e3d02d2080fe9a74d6c40fc48c/b02c1f813b3b9cb7-36/s2048x3072/3390e0008cd756188381df4f57615b208246ba0c.pnj">
 <img src="https://64.media.tumblr.com/dcd3e48257370ca90eb48dac9e394dfc/da4b6095b89d958f-11/s2048x3072/92201a2f59b875d2c8061fd17f855766d39b1ace.pnj"> 
