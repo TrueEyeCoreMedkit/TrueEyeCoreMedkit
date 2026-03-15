@@ -1,3 +1,5 @@
+<a href="https://docs.google.com/document/d/1z4ul6yPd5LIOJ1_bN6ihUblsQf5wIt-z3MdDw-2Dx3Y/edit?tab=t.0">callout of Putri(i asked Premission to link this, tw distrubing stuff that you WILL see.(If you see them called my friend(seven/warden) "problematic" SHE'S LYING./gen/neg)</a>
+
 <img src="https://i.postimg.cc/9f8fftSm/ezgif-com-resize.png">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&redirect=true) <img src="https://pixelbank.neocities.org/text/welcome/34.gif">
 
 <p align="center">
