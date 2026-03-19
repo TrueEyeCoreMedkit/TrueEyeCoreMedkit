@@ -35,8 +35,7 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 
  <img src="https://i.postimg.cc/GhTMPzGX/blinkies-Cafe-tn.gif"><img src="https://64.media.tumblr.com/2ea02aa890c00279aa0b396d515425e7/281be6bcacc41dca-4a/s250x400/31975cb8b83ed8ee421352a91f4cdea89b318a2c.gifv"><br>
  <li>Basic dni + Under 14</li>
- <li> Proship/darkship(please follow your own dni, just becuase i'm <b>NOT</b> forsaken sourced doesn't mean you get to cuddle on with me/dir</li>
- <li>forsaken fans, <b>THINNNN ICE, after what i heard about this fandom. PLEASE IWEC</b></li>
+
  <li>phighting fans, HEAVY IWEC.</li>
  <li>Sysmeds. I'm gonna hold yer hand with this one.</li>
  <li>Spawnism cult, please <a href="https://www.helpguide.org/find-help">click this</a> for you're safety, you need to be safe from this CULT/srs.</li>
