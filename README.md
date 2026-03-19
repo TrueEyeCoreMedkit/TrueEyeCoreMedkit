@@ -36,7 +36,7 @@ Hello there! I'm Kiz, you can call me Shedletsky, Medkit, Metro, and Kizper,, Ki
 
  <img src="https://i.postimg.cc/wvkP1WvQ/blinkies-Cafe-i2.gif"><img src="https://64.media.tumblr.com/e8010cad17a3757f390776e262e7dca6/8fef538bae7a40a0-05/s100x200/476d0d9cd2ffa4cb92a00e36a5d8c3d2a583dcc4.gifv"><br>
  <li>Basic dni + Under 14</li>
- <li> Proship/darkship(please follow your own dni...)
+ 
 <li>phighting fans, please heavy iwecuf.</li>
  <li>Sysmeds. I'm gonna hold yer hand with this one.</li>
  <li>Spawnism cult, please <a href="https://www.helpguide.org/find-help">click this</a> for you're safety, you need to be safe from this CULT/srs.</li>
