@@ -4,6 +4,10 @@
 
 <p align="center">
 <img src="https://64.media.tumblr.com/ed84b9e3d02d2080fe9a74d6c40fc48c/b02c1f813b3b9cb7-36/s2048x3072/3390e0008cd756188381df4f57615b208246ba0c.pnj">
+
+https://github.com/user-attachments/assets/8a5ac112-4059-4ce5-8664-85827584fadf
+
+FINALLY KNOW HOW TO MAKE THE VIDEO(I love this intro verison of TNMT it' rlly cool. !!
     
   ![](https://komarev.com/ghpvc/?username=your-github-username&color=ff69b4&style=for-the-badge)<br><img src="https://64.media.tumblr.com/c8e462cea1435b50dda5a4c33280b354/5e134ee4dc935cc7-b8/s250x400/077f551d8617c6f1b06cf431a7e4ec527623b276.pnj"><img src="https://64.media.tumblr.com/daa7debded328770c7c78845eadb640f/67a44d21d44e4531-7b/s100x200/52fdde6f32f3a471da98911788423bb2067779be.pnj"><img src="https://64.media.tumblr.com/435d74ec83723192404be5101995f4dc/9b22bdda5a99b2b9-2c/s100x200/61e6ba5be09cbe82e7150b16a360a704be6e174a.pnj"><img src="https://64.media.tumblr.com/86569a23a5246ba2b38896d8fc6efd9d/9b22bdda5a99b2b9-78/s100x200/7ef5677e6c21de4914e13d116879c4a34af0ca30.pnj"><img src="https://64.media.tumblr.com/af6e739bd957ee5518a5baf4b54070d3/cf3b10b9ee0f99e2-c6/s100x200/245e45b6e5f395cf37dd786a867adeca04a9e87c.pnj"><img src="https://64.media.tumblr.com/dbff80e9a7d9bc6703c31c95020a895e/0347d41de49d2c4d-3d/s100x200/b411fb38e91a0ef53c600409eb435a96bd60d791.pnj">
   
