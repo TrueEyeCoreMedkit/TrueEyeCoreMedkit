@@ -15,7 +15,7 @@ FINALLY KNOW HOW TO MAKE THE VIDEO(I love this intro verison of TNMT it' rlly co
   you'll see me in garbo skin, i'm mostly here at the bakery or with friends cuddling me! if you want to know me here's things about me!:
   <li>I'm a truamagenic median OSDD-1a system, NO SYSCOURSE OR I'LL EXPLODE YOUUUU I JUST NEED FRIENDS/neg</li>
   <li>i'm fictionkin and otherkin! we have lots of kins and very few otherkins, i prefered to be a deer & robotic</li>
-  <li>i'm a minor(16 y/o), i don't use 'bodily' despite me being system.</li>
+  <li>i'm a minor(16 y/o), i don't use 'bodily' despite me being system. i use I/ME cuz i'm comfortable with that</li>
   <li>I'm an Agedre/Caregiver for friends, iffy with stranger but i'll try to help ^_^</li>
   <li>I LOVEEE kidcore, 2000s stuff, and dreamcore/weirdcore aesthetic! they're my main flavorites :DDDDD</li>
   <li>Feel free to cuddle and hide with me, i'm ususally offtab, busy and sleeping Whisper 2 int if you want. ^q^</li>
