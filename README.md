@@ -6,9 +6,13 @@
 <img src="https://64.media.tumblr.com/ed84b9e3d02d2080fe9a74d6c40fc48c/b02c1f813b3b9cb7-36/s2048x3072/3390e0008cd756188381df4f57615b208246ba0c.pnj">
 
 https://github.com/user-attachments/assets/8a5ac112-4059-4ce5-8664-85827584fadf
+
 FINALLY KNOW HOW TO MAKE THE VIDEO(I love this intro verison of TNMT it' rlly cool. !!
 
+
+
 https://github.com/user-attachments/assets/d27be077-6662-43b8-994b-cc45f95d7bcd
+
 (traptraptrap's/devi song but with my voice(it is choppy bru) :)
 
     
