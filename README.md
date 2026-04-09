@@ -1,6 +1,6 @@
 <h2>TRIGGER WARNING FLASHING LIGHTS AND BRIGHT COLORS.</h2>
 
-<a href="https://docs.google.com/document/d/1z4ul6yPd5LIOJ1_bN6ihUblsQf5wIt-z3MdDw-2Dx3Y/edit?tab=t.0">callout of Putri(i asked Premission to link this.)</a> <- do not harass them, just spread awareness!/nf/gen
+<a href="https://docs.google.com/document/d/1z4ul6yPd5LIOJ1_bN6ihUblsQf5wIt-z3MdDw-2Dx3Y/edit?tab=t.0">callout of Putri(i asked Premission to link this. IDK them but they've called my friend "problematic" which it is a huge LIE)</a> <- do not harass them, just spread awareness!/nf/gen
 
 <img src="https://i.postimg.cc/9f8fftSm/ezgif-com-resize.png">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&redirect=true) <img src="https://pixelbank.neocities.org/text/welcome/34.gif">
 
