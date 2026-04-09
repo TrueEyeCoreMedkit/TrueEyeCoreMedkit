@@ -29,7 +29,6 @@ FINALLY KNOW HOW TO MAKE THE VIDEO(I love this intro verison of TNMT it' rlly co
 <img src="https://i.postimg.cc/XJX9rjkD/blinkies-Cafe-tq.gif">
 <li>I'm Autistic and has General Learning Disaility, i may say words that misunderstanded or just unreadable; please keep in mind that i struggled learning new things unless i'm used to it longer runs.
 it's not your fault.</li>
-<li>I have phighting trauma which it revoles around my ex friend, i don't wanna say names but please if you're him or any associated him, as for him <b>I know who you are, doucebag.</b></li>
 <li>I may not respond much on socials, again IT'S NOT YOUR FAULT. i'm busy much and i don't int first as always, nothing wrong! just always busy.</li>
 <li> i can be protective with my friends and/or their friends, if any hate to them, i swear to god i'll play nice if pushed limited then you'll see ugly side of me(aka my anger issuses.) i'm warning you or i'll hide you with no trace.</li>
 <li>i struggled making friends due to my social akwardness, trust me. I've been through this.</li>
