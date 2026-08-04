@@ -4,3 +4,6 @@
 <img src="https://i.postimg.cc/66nqXPr0/Untitled3857-20260802122259.png"> <br> one of my other oomfs request this art,, (HE WAS TRANSFEM ROCKET LMAO i love it...)
 <img width="470" height="235" alt="image" src="https://github.com/user-attachments/assets/bb983bd8-5611-48a5-b3a9-31b8a50d66b7" />
 wip,,,
+
+
+Respond to posion(WIP): https://docs.google.com/document/d/1V7UlSpy8iwviJBHQuOCmFETESHdOx_cleXqZjclLepo/edit?tab=t.0
