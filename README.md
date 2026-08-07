@@ -6,7 +6,7 @@
   <img src="https://i.postimg.cc/zBjWj0Mw/Untitled3912-20260806211609.png"><img src="https://camo.githubusercontent.com/220ee4bec12fec909c380fc6a6eeafa6bdb783e838c32602cd6ff69a26c66a6e/68747470733a2f2f692e706f7374696d672e63632f30517a63377a63382f556e7469746c6564333739352d32303236303732343037323031332e706e67">
 </details>
 
-Responds doc:https://docs.google.com/document/d/1V7UlSpy8iwviJBHQuOCmFETESHdOx_cleXqZjclLepo/edit?tab=t.0
+@/pathogen-interface responded doc:https://docs.google.com/document/d/1V7UlSpy8iwviJBHQuOCmFETESHdOx_cleXqZjclLepo/edit?tab=t.0
 
 <img src="https://i.postimg.cc/cJDWhXsJ/Untitled3857-20260802122259.png">
 DREW THIS CUZ MY OOMF REQUEST THIS,, (HE WAS TRANSFEM ROCKET LMAO)
