@@ -9,4 +9,4 @@
 @/pathogen-interface responded doc:https://docs.google.com/document/d/1V7UlSpy8iwviJBHQuOCmFETESHdOx_cleXqZjclLepo/edit?tab=t.0
 Do not warn my friends about the situation as well, they knew and wish me the best recovery.(same goes to my old usernames)
 <img src="https://i.postimg.cc/fbCSB1vd/Untitled3754-0000-03-17-20260816002057.png">
-also heres the "Baby is you" drawing i was talking abt, anyways. This is late lmao.
+also heres the "Baby is you" drawing i was talking abt, anyways. This is late lmao. Last art posted before i left this account.
