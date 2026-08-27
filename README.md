@@ -5,3 +5,4 @@
 
 @/pathogen-interface responded doc:https://docs.google.com/document/d/1V7UlSpy8iwviJBHQuOCmFETESHdOx_cleXqZjclLepo/edit?tab=t.0
 Do not warn my friends about the situation as well, they knew and wish me the best recovery.(same goes to my old usernames)
+<br><br>If you want to contact me about the doc, do it in ponytown whispers with civil manner, my socializing may be misunderstood, althrough i will try my best to understand. I will switch my username to here if needed it.
