@@ -1,4 +1,14 @@
 
+<details>
+  <summary>Since you guys love supporting poison so much, i drew him hanging.</summary>
+  
+ <img src="https://i.postimg.cc/Pf4s9Grh/Untitled4069-20260828103051.png">
+  i wish you NEVER WAS BORN and i wish YOUR parents NEVER LIKED YOU. DIE YOU RAT
+</details>
+
+
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vctyzx33a5aij22qxwbmhl2i5q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 https://docs.google.com/document/d/1oZU494u7TcsuejDaUlnPaF36FlWAiHS3aPW0kMtXcR8/edit?tab=t.0 <- Spam mass report this dead meat rocket, i'm so sick and tired. I'm gonna actually draw myself hanging ON A ROPE
