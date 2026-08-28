@@ -1,10 +1,4 @@
 
-<details>
-  <summary>Since you guys love supporting poison so much, i drew him hanging.</summary>
-  
- <img src="https://i.postimg.cc/Pf4s9Grh/Untitled4069-20260828103051.png">
-  i wish you NEVER WAS BORN and i wish YOUR parents NEVER LIKED YOU. DIE YOU RAT
-</details>
 
 
 
