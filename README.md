@@ -10,4 +10,4 @@ https://docs.google.com/document/d/1oZU494u7TcsuejDaUlnPaF36FlWAiHS3aPW0kMtXcR8/
 <br><br>
 just imagine being my shoes. Posion has also ignored my words and forced yall into this, i almost went suicidal attempt because posion and his friends. He hurted me, he hurted my friends and most importantly. my mental health.
 
-<br><br> "ok maybe you shouldn't drag-" shut the phuck up, you are on the interent, not irl. You try getting builled irl, you'll see how HURT and your mental health is.
+<br> "ok maybe you shouldn't drag-" shut the phuck up, you are on the interent, not irl. You try getting builled irl, you'll see how HURT and your mental health is. At this point, i do not want to place my family and friends in danger because of posion, you all enabling him to do the harassment. "b-but whos all or w-we??" you and posion's supporters and his friend. You are a monster. You are disgusting. phuck off, "b-but posion is anti-harassment" then why he added and his friends did NOT censor my friends and moirail's username respectfully. I wish someone investegate ponytown and it's playerbase in general. This is far worst.
