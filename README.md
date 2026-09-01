@@ -3,7 +3,4 @@
 
 
 
-@/pathogen-interface responded doc: currently closed. go to my patreon instead to vote.
-<br>
-https://www.patreon.com/TrueEyeCoreMedkit/posts/for-ponytown-167950554 <- please answer this poll.
-you guys love stalking me atp. posion and his friends  is my 1# fan..
+@/pathogen-interface responded doc: currently closed, you cannot siient the message, Posion. You are maninpative monster. My friend is getting hate comments and i TOLD YOU fair and the sqaure she's gonna get hate and death threats. Posion, you are an adult yet you're acting like a child and enabler.
